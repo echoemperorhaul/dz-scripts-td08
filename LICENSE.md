@@ -1,4 +1,4 @@
-
+dayz scripts updated Mod Menu - instant weapon attachment and instant zombie kill offers the most advanced dayz scripts mod menu, with instant weapon attachment and instant zombie
 
 
 
